@@ -1,3 +1,4 @@
+<a href="https://universerush.xyz/avakinlife"><img src="https://i.imgur.com/JofLywq.gif"></a>
 
 <a href="https://universerush.xyz/avakinlife"><h3>Click Here to Hack Avakin Life 2018 Now</h3></a>
 
