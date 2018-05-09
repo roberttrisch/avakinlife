@@ -1,7 +1,7 @@
 
-<a href="https://universerush.xyz/avakinlife"><h2>Click Here to Hack Avakin Life 2018 Now</h2></a>
+<a href="https://universerush.xyz/avakinlife"><h3>Click Here to Hack Avakin Life 2018 Now</h3></a>
 
-<a href="https://universerush.xyz/avakinlife"><h2>Avakin Life 2018 Hack - 240K Gems and Avacoins in under five minutes</h2></a>
+<a href="https://universerush.xyz/avakinlife"><h3>Avakin Life 2018 Hack - 240K Gems and Avacoins in under five minutes</h3></a>
 
 <h1>How to hack Avakin Life 2018 for unlimited Gems and Avacoins</h1>
 
